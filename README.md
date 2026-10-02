@@ -1,4 +1,4 @@
-ello, im a classic and boring mf. Don't bother, have a great day
+I make weird stuff ig.
 (\_/)
 (._.)
 (> <)
